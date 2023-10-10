@@ -6,6 +6,9 @@
 ![dacu7o2-26ca8719-d7ad-47ea-9bb4-5f9b16780100](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/05f1991a-5d08-4acb-98fd-d9dc55e73266)
 ![Tumblr_l_152709786876848](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/d48fdb71-42e1-4d50-868b-e9e66059b70f)
 ![d4ezrax-ea5bac12-0bf7-4d0a-af45-16ddb203625a](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/ada3b1de-7721-44c7-ba14-644b6e98e0d3)
+![love_bowie_stamp_01_by_dark0na_d1ptnuf-fullview](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/f3b7fbbd-af56-49c3-985a-2a7707a85c20)
+![the_goblin_king_by_mohowl_d9nkqgh-fullview](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/714785ee-9525-4349-9a5e-b548c45a7275)
+
 
 ![Tumblr_l_156557216499443](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/63f9254b-6b03-473a-ac4d-74d5f998dd4c)
 
