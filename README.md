@@ -1,4 +1,5 @@
 ![Tumblr_l_153973543815220](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/32806224-cadc-41e4-941c-bc6349bb6b28)
+ℙ𝕝𝕖𝕒𝕤𝕖 ℝ𝕖𝕒𝕕 ℝ𝕖𝕟𝕥𝕣𝕪 𝔹𝕐𝕀
 ![Tumblr_l_154644004699183](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/a7cbef2d-0d9d-4e15-8157-27a38dbb4042)
 
 ![sane_by_molly_stamps_dayg9ty-fullview](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/fac87896-7684-4c48-b0d4-ec74659083b0)
