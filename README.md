@@ -46,4 +46,4 @@
 ![Tumblr_l_157582937863791](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/04cb94e9-743e-4d3f-9249-a652d9554385)
 ![Tumblr_l_157585970639467](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/df734fda-248b-433b-a52f-23e47f93a7d4)
 
-![Tumblr_l_154554828268488](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/08a8574d-9082-4246-a8e8-9e4dd8c9a729)
+![Tumblr_l_156461977623177](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/71f62b5c-a70c-42cc-b510-520b4efa5027)
