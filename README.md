@@ -30,9 +30,9 @@
 ![Tumblr_l_156988546905059](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/46e72f98-0bca-4309-815d-663149f62434)
 ![Tumblr_l_156994235239432](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/cd8f15b9-9fd2-4e75-b6e3-40ef4d380777)
 ![Tumblr_l_157376790105432](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/47bea618-ddaf-4c4c-9a00-71bf27fcdf7e)
-![Tumblr_l_157386353228657](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/cbac5be0-5635-425c-aced-bf74c62225ef)
 ![Tumblr_l_157887228389039](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/05900080-fb77-4d34-8aa6-5f9e72e8af38)
-![d1izwk9-b037df2e-ada0-4392-909e-fc908b0dfd2f](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/c94e9941-b69f-40d1-a1c5-5a09656c510d)
+![1000017899](https://github.com/user-attachments/assets/f5e98343-d6dd-4be1-8de2-9eed5dbcafb3)
+![1000017898](https://github.com/user-attachments/assets/4fe6256f-c122-469f-adef-9e5d00cb3c9d)
 
 ![Tumblr_l_156557216499443](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/34ea553e-2df0-44dc-a59f-a491cb2a655e)
 
