@@ -4,6 +4,7 @@
 
 ![Tumblr_l_156557216499443](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/9c3cc860-467e-43ac-905b-dd565bbc7a4c)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tatsumilive&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 ![sane_by_molly_stamps_dayg9ty-fullview](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/fac87896-7684-4c48-b0d4-ec74659083b0)
 ![dacu7o2-26ca8719-d7ad-47ea-9bb4-5f9b16780100](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/05f1991a-5d08-4acb-98fd-d9dc55e73266)
 ![Tumblr_l_152709786876848](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/d48fdb71-42e1-4d50-868b-e9e66059b70f)
