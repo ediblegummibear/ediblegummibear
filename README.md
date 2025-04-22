@@ -12,12 +12,6 @@
 ![love_bowie_stamp_01_by_dark0na_d1ptnuf-fullview](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/f3b7fbbd-af56-49c3-985a-2a7707a85c20)
 ![the_goblin_king_by_mohowl_d9nkqgh-fullview](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/714785ee-9525-4349-9a5e-b548c45a7275)
 
-
-![Tumblr_l_156557216499443](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/63f9254b-6b03-473a-ac4d-74d5f998dd4c)
-
-![Tumblr_l_154216264536273](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/dbb88e92-7bcc-4606-ab00-28024b936de9)
-![Tumblr_l_154282823450935](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/a1b76c41-c34a-4017-a203-eddddbf01d33)
-
 ![Tumblr_l_156557216499443](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/af490eea-5065-4379-aa6a-fdd84b9fa441)
 
 ![Tumblr_l_156246279581644](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/069324ac-659a-4890-bba8-4760aa336e81)
