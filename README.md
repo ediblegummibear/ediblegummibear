@@ -1,6 +1,6 @@
 ![1000017130](https://github.com/user-attachments/assets/7cb9955c-f6b3-449f-b96b-5cbb13b3ae99)
 
-ℂℍ𝔼ℂ𝕂 𝕎𝔼 𝔸ℝ𝔼 𝕋ℍ𝔼 ℂℍ𝔸ℕ𝔾𝔼 ℂ𝔸ℝℝ𝔻 𝔽𝕆ℝ 𝕄𝕆ℝ𝔼 𝕀𝕄ℙ𝕆ℝ𝕋𝔸ℕ𝕋 𝕀ℕ𝔽𝕆
+[ℂℍ𝔼ℂ𝕂 𝕎𝔼 𝔸ℝ𝔼 𝕋ℍ𝔼 ℂℍ𝔸ℕ𝔾𝔼 ℂ𝔸ℝℝ𝔻 𝔽𝕆ℝ 𝕄𝕆ℝ𝔼 𝕀𝕄ℙ𝕆ℝ𝕋𝔸ℕ𝕋 𝕀ℕ𝔽𝕆](https://wearethechange.carrd.co/)
 
 ![Tumblr_l_156557216499443](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/9c3cc860-467e-43ac-905b-dd565bbc7a4c)
 
