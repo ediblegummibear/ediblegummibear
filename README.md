@@ -1,6 +1,6 @@
 ![1000017130](https://github.com/user-attachments/assets/7cb9955c-f6b3-449f-b96b-5cbb13b3ae99)
 
-[𝕙𝕖𝕝𝕡 𝕤𝕠𝕞𝕖 ℙ𝕒𝕝𝕖𝕤𝕥𝕚𝕟𝕚𝕒𝕟 𝕗𝕒𝕞𝕚𝕝𝕚𝕖𝕤](https://linktr.ee/gazgfm?fbclid=PAZXh0bgNhZW0CMTEAAaZdKCz0jTn149NKXNPnKtMp2sx7dy0ZDYUr2YmqOUKKbMSONRzAGIgfymw_aem_Af1-7dQcvADm3zG2hpAE8UuVUhayHKNuJ_HpZ7KW9FfgDNFsR_OyLOzrWkGfADgLiFxrVb1AuWZD8TeeLsCtWLUr)
+ℂℍ𝔼ℂ𝕂 𝕎𝔼 𝔸ℝ𝔼 𝕋ℍ𝔼 ℂℍ𝔸ℕ𝔾𝔼 ℂ𝔸ℝℝ𝔻 𝔽𝕆ℝ 𝕄𝕆ℝ𝔼 𝕀𝕄ℙ𝕆ℝ𝕋𝔸ℕ𝕋 𝕀ℕ𝔽𝕆
 
 ![Tumblr_l_156557216499443](https://github.com/ediblegummibear/ediblegummibear/assets/139409937/9c3cc860-467e-43ac-905b-dd565bbc7a4c)
 
